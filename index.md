@@ -1,3 +1,3 @@
-## Neil Varghese
+Welcome to Neil Varghese's website. 
 
-will have stuff added to eventually maybe. 
+Will have stuff here eventually. Right now is too busy to make a website with stuff. 
